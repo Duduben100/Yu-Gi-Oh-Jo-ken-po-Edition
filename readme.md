@@ -1,0 +1,1 @@
+https://duduben100.github.io/Yu-Gi-Oh-Jo-ken-po-Edition/
